@@ -1,0 +1,2 @@
+# Richm8nd
+Překlad
